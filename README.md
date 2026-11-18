@@ -26,5 +26,5 @@
 
 ## Connect With Me
 
-- LinkedIn: https://www.linkedin.com/in/tanmay-mishra-7082b9433?
+- LinkedIn: https://www.linkedin.com/in/tanmay-mishra-7082b9433
 - Email: tanmaymishra305@gmail.com
